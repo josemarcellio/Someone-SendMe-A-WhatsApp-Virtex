@@ -7,6 +7,14 @@ This might be a virtex (virus text) that causes WhatsApp to crash and become ina
 ## Username Method
 <img width="322" alt="Jepretan Layar 2024-07-11 pukul 10 22 15" src="https://github.com/josemarcellio/WhatsApp-Virtex/assets/33795287/8112584c-6eb2-402b-8aa6-a07924507536">
 
+##### I don't know why this monkey sent me this picture, but it seems like it was blocked by WhatsApp, haha!
+![i-ibb-co-Wppj16p-cheemspic-jpg](https://github.com/josemarcellio/WhatsApp-Virtex/assets/33795287/f45047ef-a4ec-4b6a-a499-3755661da806)
+
+## Disclaimer
+I don't know how to use this, but I'm logging all the conversations. I think you just need to send the method I've uploaded, then copy it and send it to someone on WhatsApp
+
+
+
 
 
 
